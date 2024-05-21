@@ -1,2 +1,2 @@
 ## SHURA
-**Bu depoda** Sekiro'dan bahsedeceğiz
+**Bu depoda** 3 FARKLI JAPON KILICINI ELE ALACAĞIZ
